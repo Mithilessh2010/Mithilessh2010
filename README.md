@@ -2,7 +2,7 @@
 - 👀 I’m interested in Coding and Gaming
 - 🌱 I’m currently learning 5th grade
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me mithib2010@hotmail.com or mithib2010@gmail.com
+- 📫 How to reach me mithilessb@gmail.com
 
 <!---
 Mithilessh2010/Mithilessh2010 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
