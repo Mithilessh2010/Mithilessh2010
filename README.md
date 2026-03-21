@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Mithilessh2010
 - 👀 I’m interested in Coding and Gaming
-- 🌱 I’m currently learning 5th grade
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I’m currently learning 9th grade
+- 💞️ I’m looking to collaborate on Pedro Pathing
 - 📫 How to reach me mithilessb@gmail.com
 
 <!---
